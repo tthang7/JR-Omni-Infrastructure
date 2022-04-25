@@ -1,1 +1,1 @@
-# JR-Omni-Architecture-
+http://jiangren.devopsnode.eazy-grade.com/
